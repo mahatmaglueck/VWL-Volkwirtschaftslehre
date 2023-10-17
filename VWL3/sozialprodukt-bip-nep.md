@@ -1,0 +1,2 @@
+# Sozialprodukt / BIP / NEP
+
